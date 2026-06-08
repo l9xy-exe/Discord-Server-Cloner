@@ -16,4 +16,4 @@ For educational and backup purposes only. Do not use it to violate Discord’s T
 
 **Quick. Clean. Efficient.**
 
-**Contact Me On Discord :_xx.9**
+**Contact Me On Discord :9jlg**
